@@ -1,1 +1,8 @@
-# thewomeninmylife.github.io
+# The women in my Life
+## This is dedicated to all the women in my life. Their significance is not relevant. If you,the reader ever gets the impression that the writer is a desperate and single man you are not far from truth. This is not meant to hurt or insult anyone or their feelings. These are just the confessions and opinions of a guy who is kinda scared/uncomfortable in saying some of the things mentioned here publicly or in front of the intended.
+
+### The first......
+Aug-17 <br>
+Lets start with my current crush. <br>
+She is Alisha. <br>
+Very pretty. Absolutely cute. Stunning in almost everything. Doesnt matter if it is western or ethnic. Her round/hexagonal specs especially enhance her cuteness. I follow her on instagram. We interact sometimes briefly. Mostly it is from my side. I react to her stories on insta. A few emojis. Thats it. The extent of our conversation. We were classmates once. After I changed schools in class 6th we lost touch and thanks to instagram we got in touch again. I used to hear stories about her though from some mututal friends who were still in contact with me. Stories like her current bouyfriend and usually some third character who was kinda in between those two. Never felt anythingweird then. Only after I started interacting with her that I developed these feelings or whatever one may call them. I pretty sure it is a phase and will pass away. Pretty sure case this is not the first time. I never had the guts to confess my sentiments. Therfore I developed a very good mechanism of dealing with my feelings. I got pretty good at moving past crushes. I think about her sometimes whnever I am alone about her in my room. Nothing dirty. I promise. Gosh this is enough for today I think. I shouldn't think about her much.
