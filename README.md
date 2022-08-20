@@ -1,7 +1,7 @@
 # The women in my Life
 ## *This is dedicated to all the women in my life. Their significance is not relevant. If you,the reader ever gets the impression that the writer is a desperate and single man you are not far from truth. This is not meant to hurt or insult anyone or their feelings. These are just the confessions and opinions of a guy who is kinda scared/uncomfortable in saying some of the things mentioned here publicly or in front of the intended.*
 
-### The first......
+
 
 #### Aug-17 <br>
 Lets start with my current crush. <br>
